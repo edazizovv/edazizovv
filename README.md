@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @edazizovv (sorry for smiles below, just joking)
+- 👋 Hi, I’m @edazizovv (sorry for emoji below, just joking)
 - 👀 I’m interested in 📉💸✨💸📈
 - 🌱 I’m currently learning 🤖👾⚙️
 - 💞️ I’m looking to collaborate on ⚒️🔬⚗️🧾💵
